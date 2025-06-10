@@ -1,2 +1,2 @@
-GreenCord repository
-For install/update.
+This repository deleted
+Get out, sansdev.
